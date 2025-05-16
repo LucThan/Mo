@@ -1,5 +1,6 @@
 # Mơ
-**MỘT KIẾP TRONG MƠ
+MỘT KIẾP TRONG MƠ
+
 Tôi từng mơ một giấc mơ, rất lâu rồi, khi tôi còn là một đứa trẻ. Đó không phải là một giấc mơ thoáng qua, mơ hồ và đứt đoạn như bao giấc mơ khác. Nó rõ ràng, đầy đủ, và chân thực đến nỗi khi tỉnh dậy, tôi không thể tin rằng tất cả chỉ là tưởng tượng. Cảm giác như tôi đã sống trọn một kiếp người từ lúc chào đời đến khi nhắm mắt…chỉ trong một đêm ngủ.
 
 Trong giấc mơ ấy, tôi sinh ra ở một vùng quê yên bình, trong một ngôi làng nhỏ nép mình giữa cánh đồng lúa mênh mông. Gia đình tôi là nông dân, nghèo nhưng hiền lành và đầm ấm. Bố tôi cuốc đất, mẹ tôi dệt vải, còn tôi lớn lên với mùi rơm rạ, tiếng trâu kêu và những buổi chiều chạy nhảy dưới hàng tre xanh. Cuộc sống ấy đơn sơ, không nhiều ước vọng, chỉ mong bữa no bữa ấm, sống cùng nhau qua ngày tháng.
